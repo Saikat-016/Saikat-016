@@ -7,7 +7,7 @@
 
 - 🌱 I’m currently studying *MCA*
 
-- 📫 How to reach me *saikatpain100@gmail.com*
+- 📫 How to reach me *saikatpain30@gmail.com*
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
